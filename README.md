@@ -1,1 +1,1 @@
-# ALGORITM_2_GOVOROV
+# g0v0rov_Algoritm_2
